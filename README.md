@@ -1,2 +1,1 @@
-# I Was Mistaken As a Monstrous Genius
-Moi, Kang Woojin, j’ai arrêté de travailler comme designer et je suis devenu chômeur. Le lendemain, mon ami m’a emmené à des auditions et j’ai été forcé de jouer. Alors qu’on me donnait un script, un vide est apparu dans mon esprit et m’a forcé à revivre le personnage. J’ai été poignardé. Je suis devenu un tueur en série. Je suis devenu un exorciste. Au fur et à mesure que je deviens acteur, les malentendus ne cessent de croître de jour en jour.
+# i-was-mistaken-as-a-monstrous-genius
